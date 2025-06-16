@@ -3,7 +3,7 @@
 
 
 
-R3ad for information about m3, curr3ntly a work in progress ^_^
+R3ad for information about m3, mor3 will b3 add3d 3v3ntually.^_^
 
 
 ![image](https://github.com/user-attachments/assets/e90191fb-9396-4e48-a97c-3f7cb54998b9)
