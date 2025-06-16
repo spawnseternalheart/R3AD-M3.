@@ -95,13 +95,13 @@ MORE WILL BE ADDED.
 
 IWC LIST v
 
-Under 13
 
 Most of the Dandys world fandom.
+
 Most of the Genshin impact fandom.
 
 
-You're pushy and force people to do things they do not want to do, its genuinely thin ice on the line of dni but I guess if you used to do it and changed its fine just iwc
+You're pushy and force people to do things they do not want to do, its genuinely just thin ice on the line of dni.
 
 You vent without permission 24/7.
 
