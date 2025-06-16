@@ -33,7 +33,7 @@ Forsaken . Happy world with happy p3opl3 / ^_^ . TR:UD . Oblivious hd (Gu3st 666
 ![image](https://github.com/user-attachments/assets/ea0ffa04-b22d-4914-91f1-cf4763609554)
 
 
-Gri3f3r, Mattpatt/Harv3y, Conn3r, VCR, S3an you all ar3 so aw3som3 Ily you all!/p (all platonic 3xc3pt for Vcr h3h..)
+Gri3f3r, Mattpatt/Harv3y, Conn3r, VCR, S3an, Mug, S3rian, and S3lozar you all ar3 so aw3som3 Ily you all!/p (all platonic 3xc3pt for Vcr h3h..)
 
 S3AN IS ALSO TH3 B3ST BIG BROTH3R 3V3R😢 
 
