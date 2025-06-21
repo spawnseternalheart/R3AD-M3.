@@ -79,7 +79,7 @@ You support trump or constantly talk about politics, I was pulled into politics 
 
 You're weird to people who age regress, for example trying to be "freaky"/s3xu4l with them while theyre age regressing, thats disgusting please dont do that.
 
-You say slurs you cant reclaim, faggot when you're straight, tranny when you're cisgender, calling people the r slur (ableism), the lesbian slur if you're NOT a lesbian, and of course the N word when you're white (racism).
+You say slurs you cant reclaim, faggot when you're straight, tranny when you're cisgender, calling people the r slur (ableism), the lesbian slur if you're NOT a lesbian, and of course the N word when you're white (racism) and other slurs.
 
 
 You justify cheating in relationships / you cheat in relationships, cheating is horrible I'm sorry if anyone had to go through that but justifying it is so weird, I would say its fine if its like you're in a abusive relationship that you cant get out of at that moment.
@@ -88,6 +88,8 @@ You justify cheating in relationships / you cheat in relationships, cheating is 
 YOU FETISHIZE MLM OR WLW. I'm pretty sure thats what a fujoshi / fudanshi is, I'm not sure if theres a term for fetishizing wlw but yeah.
 
 You invalidate trans or homosexual people.
+
+You genuinely believe in spawn as a real cult, or just indulge in cults in general. In the nicest way possible you may be mentally ill, please genuinely get therapy this is coming from a place of concern, do NOT do horrible things in real life for a fictional cult, its fine to roleplay being into spawn but if you actually believe it please try to prevent yourself from doing that or genuinely get help :(.
 
 
 MORE WILL BE ADDED.
