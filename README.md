@@ -12,7 +12,7 @@ R3ad for information about m3, mor3 will b3 add3d 3v3ntually.^_^
 
 HAI ^_^
 
-I can b3 r3f3r3d to as Jacob ^ . Matth3w ^ . Matt ^ . Azur3 (^?) . Kovia . Jim . or Kaito .
+I can b3 r3f3r3d to as Jacob ^ . Matth3w ^ . Matt ^ . Azur3 ^ . Kovia . Jim . or Kaito .
 
 
 Prns are It/Its ^ . H3/him ^ . or Th3y/Th3m .
@@ -40,7 +40,7 @@ S3AN IS ALSO TH3 B3ST BIG BROTH3R 3V3R😢
 ![image](https://github.com/user-attachments/assets/cfe50871-9858-4f3c-8f64-2cd5bc5d964c)
 
 
-I fictkin Jacob from cdarchiv3s and I kin some other charact3rs, Brok3n spawn (L3t him go) . Jim (Jims comput3r) . Matt (Th3 last gu3st) . and mayb3 Azur3 (Forsaken) .
+I fictkin Jacob from cdarchiv3s and I kin some other charact3rs, Brok3n spawn (L3t him go) . Jim (Jims comput3r) . Matt (Th3 last gu3st) . and Azur3 (Forsaken) .
 
 
 I DO NOT DO DOUBL3S DNI ^_^ I may !som3tim3s! b3 a bit wary or a littl3 str3ss3d if I s33 som3on3 using th3 sam3 pony as m3 mostly Jacob but I dont think I should do doubl3s dni.
