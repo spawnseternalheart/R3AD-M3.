@@ -1,8 +1,8 @@
 # R3AD-M3.
 ![image](https://github.com/user-attachments/assets/0671cc13-06f9-4c7b-9b4b-9a5a8cb8d572)
 
-
-
+SORRY IF IT'S HARD TO READ BECAUSE OF THE TYPING QUIRK :(( - OCT 2 
+ 
 R3ad for information about m3, mor3 will b3 add3d 3v3ntually.^_^
 
 
