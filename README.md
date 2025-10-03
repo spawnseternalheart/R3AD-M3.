@@ -1,7 +1,7 @@
 # R3AD-M3.
 ![image](https://github.com/user-attachments/assets/0671cc13-06f9-4c7b-9b4b-9a5a8cb8d572)
 
-SORRY IF IT'S HARD TO READ BECAUSE OF THE TYPING QUIRK :(( - OCT 2 
+SORRY IF IT'S HARD TO READ BECAUSE OF THE TYPING QUIRK :((  THINGS WILL LOOK SLIGHTLY WONKY SINCE I UPDATED SOME THINGS - OCT 2 
  
 R3ad for information about m3, mor3 will b3 add3d 3v3ntually.^_^
 
@@ -12,13 +12,13 @@ R3ad for information about m3, mor3 will b3 add3d 3v3ntually.^_^
 
 HAI ^_^
 
-I can b3 r3f3r3d to as Jacob ^ . Matth3w ^ . Matt ^ . Azur3 ^ . Kovia . Jim . or Kaito .
+I wish to be refered to as Jacob ^ . Noah ^ . Matt . Matthew . Kovia . Jim . or Kaito .
 
 
 Prns are It/Its ^ . H3/him ^ . or Th3y/Th3m .
 
 
-ANY OF THOS3 WHICH HAV3 A ^ M3ANS MOST LIK3LY PR3F3R3D.
+ANY OF THOS3 WHICH HAV3 A ^ M3ANS MOSTLY PREFERED.
 
 
 
